@@ -6,7 +6,10 @@
 一个摊蛋糕的小能手
  
 扫雷技术也不错
-
+ 
+ 
+<img src="http://wx3.sinaimg.cn/mw690/81777750ly1fdz316g0k2j20zk0qodjc.jpg" width="200" height="200">
+<img src="http://wx3.sinaimg.cn/mw690/81777750ly1fdz316g0k2j20zk0qodjc.jpg" width="200" height="200">
 
  [近期作品](http://wx3.sinaimg.cn/mw690/81777750ly1fdz316g0k2j20zk0qodjc.jpg) 
 
