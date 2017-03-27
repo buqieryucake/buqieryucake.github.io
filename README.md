@@ -1,19 +1,8 @@
 ## 不柒而遇
 
 
-<!DOCTYPE html> 
-<html xmlns="http://www.w3.org/1999/xhtml"> 
-<head> 
-<meta charset="gb2312" /> 
-<title>divcss5之居中实例</title> 
-<style> 
-body{text-align:center} 
-</style> 
-</head> 
-<body> 
-柒姑娘 
-</body> 
-</html>  
+柒姑娘
+ 
 一个摊蛋糕的小能手
  
 扫雷技术也不错
