@@ -18,7 +18,7 @@
 [重疾体检标准](https://wx3.sinaimg.cn/mw690/81777750gy1fn8leniuq0j20gl0biack.jpg) 
 
  
-<img src="https://wx1.sinaimg.cn/mw690/81777750gy1fn8l07jklwj20u01hcn4b.jpg" width="620" height="980">
+<img src="https://wx1.sinaimg.cn/mw690/81777750gy1fn8l07jklwj20u01hcn4b.jpg" width="300" height="600">
 
  [微博](https://weibo.com/u/2172090192) 
   
