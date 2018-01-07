@@ -1,14 +1,14 @@
-## 不柒而遇
+## 民生27期组训班资料链接库
 
 
-柒姑娘
+存储一些资料链接，别再群里一个一个问了 :<
  
-一个摊蛋糕的小能手
+支持帮我完善页面的，码库 = =！
  
-扫雷技术也不错
+最好是出钱租个服务器给我呀：）
  
-<img src="http://wx3.sinaimg.cn/mw1024/81777750ly1fdz316g0k2j20zk0qodjc.jpg" width="246" height="186">
+<img src="https://wx1.sinaimg.cn/mw690/81777750gy1fn8l07jklwj20u01hcn4b.jpg" width="1080" height="1920">
 
- [柒姑娘微博](http://weibo.com/u/3228356483) 
+ [微博](https://weibo.com/u/2172090192) 
   
- [购买猛戳](https://weidian.com/s/320657148?wfr=wx_profile) 
+ [打赏猛戳](https://wx2.sinaimg.cn/mw690/81777750gy1fn8l3ksaaoj20bi0bjmyg.jpg) 
