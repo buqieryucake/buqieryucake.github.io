@@ -7,7 +7,7 @@
  
 最好是出钱租个服务器给我呀：）
  
-<img src="https://wx1.sinaimg.cn/mw690/81777750gy1fn8l07jklwj20u01hcn4b.jpg" width="1080" height="1920">
+<img src="https://wx1.sinaimg.cn/mw690/81777750gy1fn8l07jklwj20u01hcn4b.jpg" width="1080" height="980">
 
  [微博](https://weibo.com/u/2172090192) 
   
