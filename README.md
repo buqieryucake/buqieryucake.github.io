@@ -32,3 +32,18 @@
 上菜了亲：
 下载地址： https://www.lanzous.com/b261867/ 
 下载之后解压出来有详细的教程，任何不懂的联系客服就行哦，请勿中差评，有售后，及早的确认收获可以加裙交流哦，欢迎下次再来!
+找电影：[http://www.hao6v.com/][http://www.2xyw.com/] 
+找美剧：[http://www.zimuzu.tv/?_=0.8795307241380215]
+找电视：[http://www.iketv.cn/]
+找体育：[https://www.52waha.com/live]
+找音乐：[http://music.ifkdy.com/]、[http://moresound.tk/music/]
+找小说：[https://www.owllook.net/]
+找工具：[http://tool.mkblog.cn/][https://03k.org/]
+找软件：[https://www.laomoit.com/]
+找导航：[http://ilxdh.com/]
+找百度：[http://iwo.im/]
+漫威宇宙电影(按时间排列)：链接: [https://pan.baidu.com/s/1OJgGb5XoeDgkAANDOOljsw] 提取码: y3b6
+美剧合集，10月16日更新：链接: [https://pan.baidu.com/s/1th2g5CrEXLmiUdQgJklxTw] 提取码: di22
+一击男画作：[https://tieba.baidu.com/f?kw=%D2%BB%BB%F7%C4%D0&fr=ala0&tpl=5]
+
+https://ngabbs.com/read.php?&tid=18804329&pid=368728190&to=1
